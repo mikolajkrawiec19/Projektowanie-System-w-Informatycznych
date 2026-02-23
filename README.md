@@ -1,1 +1,1 @@
-# Projektowanie-System-w-Informatycznych
+# Projektowanie-Systemow-Informatycznych
